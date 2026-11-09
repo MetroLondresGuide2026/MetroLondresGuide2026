@@ -14,3 +14,7 @@ Here are some ideas to get you started:
 - 😄 Pronouns: ...
 - ⚡ Fun fact: ...
 -->
+
+## Moverse por Londres sin pagar de más
+
+Londres se disfruta mejor a pie y en autobús, y el metro es para los trayectos largos. Antes de viajar, conviene mirar el mapa, elegir la tarjeta adecuada y planear los transbordos con calma: un recorrido pensado de antemano ahorra dinero y tiempo, y la ciudad premia a quien va despacio. Más guías en español en [Metro Londres](https://metro-londres.es/).
